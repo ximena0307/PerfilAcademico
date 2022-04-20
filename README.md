@@ -1,7 +1,7 @@
 ## Perfil ácademico de Ximena Álvarez Chavarria. C10373.
 __Estudiante de la Escuela de Geografia,Universidad de Costa Rica.__
 
-![](https://geografia.fcs.ucr.ac.cr/images/Proyectos/programas/Firmas_Digitales-02.png)
+![](https://www.geografia.fcs.ucr.ac.cr/images/Sin_ttulo-3.png)
 
 [Escuela de Geografia, Universidad de Costa Rica.](https://geografia.fcs.ucr.ac.cr/)
 
